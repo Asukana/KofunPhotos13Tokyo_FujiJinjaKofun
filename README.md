@@ -1,0 +1,2 @@
+# KofunPhotos13Tokyo_FujiJinjaKofun
+富士神社古墳
